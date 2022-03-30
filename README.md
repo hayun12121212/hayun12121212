@@ -5,4 +5,5 @@ homecomputers this is school computers only so ye have fun have a great day
 if you have any problems E-mail me my email is haidynschooley@gmail.com
 
 
-and to use these mods you have to press SHIFT+CTRL+I and then go to console but befor that you have to make sure you do that in the game then have fun
+and to use these mods you have to make a bookmarlet and paste the ANSWER CHEAT into the URL and name it what ever you want to name it then go in a game and 
+click the bookmark have fun!!
